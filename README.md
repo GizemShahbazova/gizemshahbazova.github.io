@@ -1,2 +1,0 @@
-# gizemshahbazova.github.io
-
